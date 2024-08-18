@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @matiasfilho81
-- 👀 I’m interested in compassion
-- 🌱 I’m currently learning compassion
 - 💞️ I’m looking to collaborate with you
 - 📫 How to reach me matiasfilho@gmail.com
 
